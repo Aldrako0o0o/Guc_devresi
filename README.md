@@ -1,0 +1,1 @@
+# Guc_devresi
